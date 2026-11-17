@@ -1,2 +1,2 @@
 #web
-http://f1324338.xsph.ru
+http://a1333631.xsph.ru
